@@ -1,1 +1,0 @@
-# mama-fina-best-witchcraft-doctor-from-uganda
